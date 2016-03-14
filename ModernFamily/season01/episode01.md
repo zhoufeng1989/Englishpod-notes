@@ -5,7 +5,7 @@
 5.	penalty 惩罚；足球点球
 6.	Let's take it down a notch.放松点
 7.	Damn it.
-8.	gotta(going to); wanna(want to);
+8.	gotta(have got to 必须); wanna(want to); gonna(going to 将要)
 9.	adorable 可爱的
 10.	She's an angle. You and your wift must be **thrilled**.
 11.	We had initially asked one of our lesbian friends to be a surrogate(代孕者).
